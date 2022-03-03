@@ -12,4 +12,4 @@ Here are some ideas to get you started:
 - 💬 Ask me about ...Well,ignorance is a bliss.
 - 📫 How to reach me: Fate bringing people together from thousand miles away.
 - ⚡ Fun fact: Actually I'm not a sunfish.
-- 🎶 Thanks for watching~
+- 🎶 Thanks for watching ~
